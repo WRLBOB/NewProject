@@ -1,5 +1,7 @@
 217:【欧美SLG/汉化】动态 猎艳逐影V1.02 精翻汉化版 CG+PC+安卓【6.2G】
-
+	
+	<a href= 'http://file.fmapp.com/s/ngstv88d'>下载地址1</a>
+	
 	下载地址1：217.txt：http://file.fmapp.com/s/ngstv88d
 
 	下载地址2：217.txt：http://www.kufile.net/file/QUExMjg2MDA1.html
